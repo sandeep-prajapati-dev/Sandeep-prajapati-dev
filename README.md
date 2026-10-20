@@ -7,7 +7,7 @@
 
 📞 **Phone:** [+91-8750369610](tel:+918750369610)  
 📧 **Email:** [sandeep.prajapati.dev@gmail.com](mailto:sandeep.prajapati.dev@gmail.com)  
-🔗 **LinkedIn:** [linkedin.com/in/sandeeprajapati](https://www.linkedin.com/in/sandeep-503593216/)  
+🔗 **LinkedIn:** [linkedin.com/in/sandeeprajapatidev](https://www.linkedin.com/in/sandeeprajapatidev)  
 💻 **GitHub:** [github.com/sandeep8750](https://github.com/sandeep8750)
 
 
