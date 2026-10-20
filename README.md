@@ -6,7 +6,7 @@
 📍 Faridabad, Haryana, India  
 
 📞 **Phone:** [+91-8750369610](tel:+918750369610)  
-📧 **Email:** [sandeeprajapati8750@gmail.com](mailto:sandeeprajapati8750@gmail.com)  
+📧 **Email:** [sandeep.prajapati.dev@gmail.com](mailto:sandeep.prajapati.dev@gmail.com)  
 🔗 **LinkedIn:** [linkedin.com/in/sandeeprajapati](https://www.linkedin.com/in/sandeep-503593216/)  
 💻 **GitHub:** [github.com/sandeep8750](https://github.com/sandeep8750)
 
